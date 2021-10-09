@@ -10,7 +10,7 @@
 
 - ⚡ Fun fact: Always believe that paying and harvesting are directly proportional
 
-- 📫 How to reach me: jstarfish911@gmail.com
+- 📫 如何联系我：1779926694@qq.com
 
 
 
